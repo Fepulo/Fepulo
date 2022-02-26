@@ -1,4 +1,5 @@
-### Hi there 👋
+### Email - ofepulo@outlook.com 
+### Discord: Fepulo#5839
 
 <!--
 **Fepulo/Fepulo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
